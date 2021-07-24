@@ -1,2 +1,2 @@
 # hello-world
-Beginning of a journey 
+An individual who's ready to explore the world 
